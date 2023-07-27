@@ -6,7 +6,7 @@
 ### <div align="center">Soy MenteByte</div>  
   
 
-- 🔭 Actualmente Trabajando en [Capital Roleplay](https://discord.gg/caprp)  
+- 🔭 Actualmente NO estoy Trabajando en ningun proyecto.
   
 
 - ❓ Escucho cualquier tipo de proyecto mediante mi Discord MenteByte#1907  
